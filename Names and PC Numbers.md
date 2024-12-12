@@ -7,7 +7,7 @@ Bajaj Singh Bajaj Singh:  PC211-P23
 Navjot Singh Bhatti
 Kamakshi Dhillon
 Rahul Kumar
-Jason Lam
+Jason Lam PCB204-p12
 Ritish Manhas
 Ned Monte
 Ryan Mouzyane
